@@ -11,7 +11,7 @@
 
 - ⚡ Connect Us at [Linkedin](https://www.linkedin.com/company/fegno-technologies/)
 
-- 👨‍💻 Want to Work with us? **hr@fegno.com**
+- 👨‍💻 Want to Join our team with us? Check out [Careers](https://www.fegno.com/careers/) for a matching JD or email to **hr@fegno.com** .
 
 <h3 align="left">Connect us:</h3>
 
